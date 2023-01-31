@@ -1,0 +1,10 @@
+# Stats_Part_8
+![Page_90](https://user-images.githubusercontent.com/105154672/215524310-c7cd6e05-b7c9-4992-bdf5-bd7d0d337457.jpeg)
+![Page_91](https://user-images.githubusercontent.com/105154672/215524331-79b444b9-3159-4d0b-9400-c26f2f9d700a.jpeg)
+![Page_92](https://user-images.githubusercontent.com/105154672/215524334-73a4cf28-6386-4875-a0d9-e8e7d459ff04.jpeg)
+![Page_93](https://user-images.githubusercontent.com/105154672/215524340-b91f04a7-575a-4248-9f11-a465f4e17b91.jpeg)
+![Page_94](https://user-images.githubusercontent.com/105154672/215524344-0e472ffb-172e-426f-b45c-aedc3356c9b7.jpeg)
+![Page_95](https://user-images.githubusercontent.com/105154672/215524353-1f1ae916-1e76-4eae-b816-99681bb25fb2.jpeg)
+![Page_96](https://user-images.githubusercontent.com/105154672/215524359-3d47cf44-9ee0-4ada-bd66-2c9ea27f59e9.jpeg)
+![Page_97](https://user-images.githubusercontent.com/105154672/215524361-5f6b2994-14ce-4252-92e6-3ffd977f8636.jpeg)
+![Page_98](https://user-images.githubusercontent.com/105154672/215524364-a38705e9-6ea5-439f-a18e-ccb232694a8e.jpeg)
